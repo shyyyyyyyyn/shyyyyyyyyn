@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @shyyyyyyyyn
+- 👀 I’m interested em aprender a tocar guitarra.
+- 📫 How to reach me  pequenajh3@gmail.com 
+-  ;)
